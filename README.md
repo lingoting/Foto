@@ -1,10 +1,10 @@
-![IMG_20231126_225937](https://github.com/lingoting/Foto/assets/150814680/02a740d7-4977-4fd6-83f1-004e5b98007f)
-![IMG_20231126_230021](https://github.com/lingoting/Foto/assets/150814680/925d4a94-9dad-4fbe-9ac9-61cc2a363661)
-![IMG_20231126_230100](https://github.com/lingoting/Foto/assets/150814680/354164b6-fa8a-4c75-bdbc-cef2bd2d09b5)
-![IMG_20231126_230133](https://github.com/lingoting/Foto/assets/150814680/3256de15-cdb5-4b77-9dd4-dc06d3a188f9)
-![IMG_20231126_230221](https://github.com/lingoting/Foto/assets/150814680/9bf358f4-0290-4d73-b21d-84ac87b5c4cf)
-![IMG_20231126_230724](https://github.com/lingoting/Foto/assets/150814680/3d9811e4-e8e2-4851-9328-58427085bcc2)
-![IMG-20231118-WA0012](https://github.com/lingoting/Foto/assets/150814680/159eb7bf-2766-406f-bcd0-2149852dc68f)
-![IMG-20231118-WA0010](https://github.com/lingoting/Foto/assets/150814680/8d052fb8-10d9-4ffc-bc5f-40f3f886ca89)
-![images__6_-removebg-preview](https://github.com/lingoting/Foto/assets/150814680/4616b5e2-6a8e-445b-9ef1-717e19e8fa76)
+![IMG_20231126_225937](https://github.com/lingoting/Foto/assets/150814680/02a740d7-4977-4fd6-83f1-004e5b98007f).png
+![IMG_20231126_230021](https://github.com/lingoting/Foto/assets/150814680/925d4a94-9dad-4fbe-9ac9-61cc2a363661).png
+![IMG_20231126_230100](https://github.com/lingoting/Foto/assets/150814680/354164b6-fa8a-4c75-bdbc-cef2bd2d09b5).png
+![IMG_20231126_230133](https://github.com/lingoting/Foto/assets/150814680/3256de15-cdb5-4b77-9dd4-dc06d3a188f9).png
+![IMG_20231126_230221](https://github.com/lingoting/Foto/assets/150814680/9bf358f4-0290-4d73-b21d-84ac87b5c4cf).png
+![IMG_20231126_230724](https://github.com/lingoting/Foto/assets/150814680/3d9811e4-e8e2-4851-9328-58427085bcc2).png
+![IMG-20231118-WA0012](https://github.com/lingoting/Foto/assets/150814680/159eb7bf-2766-406f-bcd0-2149852dc68f).png
+![IMG-20231118-WA0010](https://github.com/lingoting/Foto/assets/150814680/8d052fb8-10d9-4ffc-bc5f-40f3f886ca89).png
+![images__6_-removebg-preview](https://github.com/lingoting/Foto/assets/150814680/4616b5e2-6a8e-445b-9ef1-717e19e8fa76).png
 # Foto
