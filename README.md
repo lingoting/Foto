@@ -1,3 +1,5 @@
+![IMG_20231127_180417](https://github.com/lingoting/Foto/assets/150814680/93eba4e1-35ff-4b16-b070-967d16eb9712)
+![Screenshot_20231118_170300](https://github.com/lingoting/Foto/assets/150814680/82c7273f-7e32-40e8-b1ab-6c489b00db9d)
 ![ic_account_blokir](https://github.com/lingoting/Foto/assets/150814680/0965ceea-af23-417c-a740-642dfc85efc4)
 ![IMG_20231126_225937](https://github.com/lingoting/Foto/assets/150814680/02a740d7-4977-4fd6-83f1-004e5b98007f).png
 ![IMG_20231126_230021](https://github.com/lingoting/Foto/assets/150814680/925d4a94-9dad-4fbe-9ac9-61cc2a363661).png
