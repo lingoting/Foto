@@ -1,3 +1,6 @@
+![IMG_20231203_213256](https://github.com/lingoting/Foto/assets/150814680/1f4cf508-f492-4eba-a46c-24f0b74b6685)
+![IMG_20231203_213316](https://github.com/lingoting/Foto/assets/150814680/03702ca9-9889-4901-b904-ecd32ff480cd)
+![IMG_20231203_213358](https://github.com/lingoting/Foto/assets/150814680/7603c9f6-0f1f-4bde-b560-065b5a9426d8)
 ![Uploading Fifechh.png…]()
 ![Uploading Fifechh.png…]()
 ![Sea Bank Logo](https://github.com/lingoting/Foto/assets/150814680/63eefbc3-bc0e-48ff-bd29-a7a0018d935a)
