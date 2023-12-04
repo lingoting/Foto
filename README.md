@@ -1,3 +1,4 @@
+![kmc_20231204_182433](https://github.com/lingoting/Foto/assets/150814680/623a32f7-2992-4b6d-b254-8af1e17df9be)
 ![IMG_20231203_213231](https://github.com/lingoting/Foto/assets/150814680/89cd8950-7bb5-49dd-9634-0a9757b0040c)
 ![IMG_20231203_213256](https://github.com/lingoting/Foto/assets/150814680/1f4cf508-f492-4eba-a46c-24f0b74b6685)
 ![IMG_20231203_213316](https://github.com/lingoting/Foto/assets/150814680/03702ca9-9889-4901-b904-ecd32ff480cd)
